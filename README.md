@@ -1,0 +1,2 @@
+# goldmine
+Bitcoins in shona
